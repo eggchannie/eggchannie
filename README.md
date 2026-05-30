@@ -11,3 +11,5 @@ $\textcolor{#000e8a}{\text{he/they demiboy}}$
 $\textcolor{#000e8a}{\text{X w X}}$
 
 $\textcolor{#69291d}{\text{I OPERATE JUST FOR THE LADIES!}}$
+
+<img src="https://github.com/kookoobound/kookoobound/blob/0345087e8e5cfece553760dad648c9377e92d8e2/Kookoo_Clock_Asset.gif" alt="Application Screenshot" width="200">
