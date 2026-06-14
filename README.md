@@ -4,5 +4,5 @@
 
 wip. ava/avm, uu fans interact ok
 
-@WeepingArchangel > dad! someone thought we were dating LMFAOOO hi wem
-@PixelBrickz > pixels the SHIII hey bro! different timezones tho stinks : \ hi minute
+@WeepingArchangel > dad! someone thought we were dating LMFAOOO hi minute
+@PixelBrickz > pixels the SHIII hey bro! different timezones tho stinks : \ hi wemm
