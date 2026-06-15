@@ -18,6 +18,6 @@ $${\color{#ae8dca}\text{ChanEgg / Tobias / Fether}}$$
 
 $${\color{#e5e7fb}\text{He / They}}$$
 
-<img align="left" width="100" src="https://github.com/eggchannie/eggchannie/blob/6b9191fdcab367f4e274837c8c65e03e900a43a8/image-9b24-gradientmap.pro.png"> <img align="right" width="120" src="https://github.com/eggchannie/eggchannie/blob/6b9191fdcab367f4e274837c8c65e03e900a43a8/image-13e1-gradientmap.pro.png">
+<img align="left" width="100" src="https://github.com/eggchannie/eggchannie/blob/6b9191fdcab367f4e274837c8c65e03e900a43a8/image-9b24-gradientmap.pro.png"> <img align="right" width="100" src="https://github.com/eggchannie/eggchannie/blob/6b9191fdcab367f4e274837c8c65e03e900a43a8/image-13e1-gradientmap.pro.png">
 
-<img align="center" width="100" src="https://github.com/eggchannie/eggchannie/blob/f7a3748ccecf62f2adbadd7f57e1eb770a76ebbb/tumblr_090290ef0c4031a75b229153bb200180_e405fc77_100.png">
+<img align="center" width="50" src="https://github.com/eggchannie/eggchannie/blob/f7a3748ccecf62f2adbadd7f57e1eb770a76ebbb/tumblr_090290ef0c4031a75b229153bb200180_e405fc77_100.png">
