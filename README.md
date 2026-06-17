@@ -23,3 +23,9 @@ $${\color{#e5e7fb}\text{He / They}}$$
 [atabook](https://directorwifies.atabook.org/) <img align="right" width="90" src="https://github.com/eggchannie/eggchannie/blob/6b9191fdcab367f4e274837c8c65e03e900a43a8/image-13e1-gradientmap.pro.png">
 
 <img align="center" width="50" src="https://github.com/eggchannie/eggchannie/blob/f7a3748ccecf62f2adbadd7f57e1eb770a76ebbb/tumblr_090290ef0c4031a75b229153bb200180_e405fc77_100.png"> $${\color{#ae8dca}\text{@WeepingArchangel : hello emperor wemmbu / HI DADDD HIIII}}$$ $${\color{#7a8d00}\text{@PixelBrickz : hello parrotx2 / HI PXIEL HI PIXEL}}$$
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3lalko5drvx182p1gse686487&cover_image=true&theme=novatorem&show_offline=false&background_color=474897&interchange=false&profanity=false&hide_remaster=false&bar_color=e6f7fd&bar_color_cover=false">
+  </a>
+</p>
