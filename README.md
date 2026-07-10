@@ -1,31 +1,15 @@
-<img align="center" width="900" src="https://github.com/eggchannie/eggchannie/blob/4b8d1157e9792bf926627da449b3dd67a5e30495/tumblr_1ccdcdc73591545abd9fda6fa5420196_ed91adbe_2048.png">
+<img align="center" width="900" src="https://github.com/eggchannie/eggchannie/blob/1d8a3d901483cc8103fd6a468ab06ec901d3b331/HKyMwxVa8AEq-60(1).png">
 
 <div align="center">
+  
+<img align="center" width="300" src="https://github.com/eggchannie/eggchannie/blob/035b5ab03bce1b1d0a0da2ae37a2c548390eb7a4/tumblr_7cbe3c03369270b8ceba6c5e3460a7c9_aeef1189_1280.png">
 
-<img align="center" width="100" src="https://github.com/eggchannie/eggchannie/blob/4b8d1157e9792bf926627da449b3dd67a5e30495/tumblr_76ce831caa7f1f927ab03b4eebd0240f_37305982_250.png"> <img align="center" width=100 src="https://github.com/eggchannie/eggchannie/blob/4b8d1157e9792bf926627da449b3dd67a5e30495/tumblr_2e5f27e7ef66e5460382b5c575976a34_8553f8fc_250.webp">
+[guns.lol](https://guns.lol/aregectze) [atabook](https://directorwifies.atabook.org/) 
 
+[![Hits](https://hits.sh/github.com/hiopes.svg?label=goldchain&color=bbbbbb&labelColor=7d5042&logo=adafruit)](https://hits.sh/github.com/hiopes)
 
-<img align="left" width="50" src="https://github.com/eggchannie/eggchannie/blob/9883f232e3d16885bcf8f4aafb90beaf6cc2b7c7/image-8f3c-gradientmap.pro.png"> <img align="center" width="200" src="https://github.com/eggchannie/eggchannie/blob/e2fa969bfa31277b01711c8fe9cff93a7b7e6293/tumblr_f2a8f853be4b16459f9536de7b1154cc_576b87c9_640.jpg"> <img align="right" width="50" src="https://github.com/eggchannie/eggchannie/blob/9883f232e3d16885bcf8f4aafb90beaf6cc2b7c7/image-edda-gradientmap.pro.png">
+<img align="center" width="190" src="https://github.com/eggchannie/eggchannie/blob/1f63a59021539703530136e41648ccdb5d71901e/tumblr_75ed96b97b288dc06d6725539a969afc_315d9ec0_1280.webp"> <img align="center" width="190" src="https://github.com/eggchannie/eggchannie/blob/8537000247a0d0b17b575c2837324de1e32ff65a/tumblr_dd90ff852c17e01660c72c844667881e_35d0c43d_1280.webp">
 
+$${\color{#715343}\text{Verity / Tobias / Flint}}$$ $${\color{#c2b3a4}\text{He / They}}$$
 
-<img align="left" width="300" src="https://github.com/eggchannie/eggchannie/blob/4b8d1157e9792bf926627da449b3dd67a5e30495/tumblr_761d4800dd9f0fcbd7ed51fcf3f0bedc_83550d23_1280.png"> <img align="right" width="300" src="https://github.com/eggchannie/eggchannie/blob/4b8d1157e9792bf926627da449b3dd67a5e30495/tumblr_f340395cafb50f792075ad7a45314e00_ec778eb9_1280.png">
-
-$${\color{#e5e7fb}Collide \space like \space two \space stars \space for \space a \space while}$$
-
-$${\color{#474897}You \space and \space I.}$$
-
-$${\color{#ae8dca}\text{ChanEgg / Tobias / Fether}}$$
-
-$${\color{#e5e7fb}\text{He / They}}$$
-
-<img align="left" width="80" src="https://github.com/eggchannie/eggchannie/blob/6b9191fdcab367f4e274837c8c65e03e900a43a8/image-9b24-gradientmap.pro.png"> 
-
-[atabook](https://directorwifies.atabook.org/) <img align="right" width="90" src="https://github.com/eggchannie/eggchannie/blob/6b9191fdcab367f4e274837c8c65e03e900a43a8/image-13e1-gradientmap.pro.png">
-
-<img align="center" width="50" src="https://github.com/eggchannie/eggchannie/blob/f7a3748ccecf62f2adbadd7f57e1eb770a76ebbb/tumblr_090290ef0c4031a75b229153bb200180_e405fc77_100.png"> $${\color{#ae8dca}\text{@WeepingArchangel : hello emperor wemmbu / HI DADDD HIIII}}$$ $${\color{#7a8d00}\text{@PixelBrickz : hello parrotx2 / HI PXIEL HI PIXEL}}$$
-
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3lalko5drvx182p1gse686487&cover_image=true&theme=novatorem&show_offline=false&background_color=474897&interchange=false&profanity=false&hide_remaster=false&bar_color=e6f7fd&bar_color_cover=false">
-  </a>
-</p>
+<img align="center" width="300" src="https://github.com/eggchannie/eggchannie/blob/86884e1252790b20229ec5f1267820e9c7779b54/tumblr_2ecf17efc10abe4ade1c435424ef942e_92f29beb_640.png"> <img align="center" width="300" src="https://github.com/eggchannie/eggchannie/blob/86884e1252790b20229ec5f1267820e9c7779b54/tumblr_9405db6f11229f828ac6cdfa60bc4f2c_b73a25e1_640.png">
