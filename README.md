@@ -1,4 +1,4 @@
-<img align="center" width="900" src="https://github.com/eggchannie/eggchannie/blob/1d8a3d901483cc8103fd6a468ab06ec901d3b331/HKyMwxVa8AEq-60(1).png">
+<img align="center" width="700" src="https://github.com/eggchannie/eggchannie/blob/1d8a3d901483cc8103fd6a468ab06ec901d3b331/HKyMwxVa8AEq-60(1).png">
 
 <div align="center">
   
